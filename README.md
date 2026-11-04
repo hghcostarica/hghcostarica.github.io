@@ -1,0 +1,1 @@
+# hghcostarica.github.io
